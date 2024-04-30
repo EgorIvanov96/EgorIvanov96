@@ -4,6 +4,7 @@
 
 * 🌍Я живу в Санкт-Петербурге. 
 * ✉️Связаться со мной можно по адресу [shura.1996.ivanov@gmail.com.](mailto:shura.1996.ivanov@gmail.com)[](mailto:shura.1996.ivanov@gmail.com)
+* ✉️Телеграм [t.me/egor_ivanov96](mailto:t.me/egor_ivanov96)[](mailto:t.me/egor_ivanov96)
 
 ### Навыки
 
